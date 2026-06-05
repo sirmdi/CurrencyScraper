@@ -17,8 +17,8 @@ Email: mdiall.offical@gmail.com
 
 Developed by Lernida
 
-Website: https://lernida.ir
-Telegram: https://t.me/lernida
+Website: www.lernida.ir
+Telegram: t.me/lernida
 
 --------------------------------------------------
 
